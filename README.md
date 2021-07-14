@@ -1,1 +1,1 @@
-{\rtf1}
+https://tonyovchinnikov.github.io/rsschool-cv
